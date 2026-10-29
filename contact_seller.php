@@ -1,2 +1,106 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×Ž=N‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()É•ÅÕ¥É•1½¥¸ ¤ì()¥˜€ …¥ÍÍ•Ð ‘}Ql¥Ñ•µ}¥t¤¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‰É½ÝÍ”¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•µ}¥€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}Ql¥Ñ•µ}¥t¤ì(‘ÕÍ•É}¥€ô€‘}MMM%=9lÕÍ•É}¥tì((¼¼•Ñ ¥Ñ•´…¹Í•±±•È‘•Ñ…¥±Ì(‘¥Ñ•µ}ÍÅ°€ô€‰M1P¤¸¨°Ô¹¹…µ”…ÌÍ•±±•É}¹…µ”°Ô¹¥…ÌÍ•±±•É}¥I=4¥Ñ•µÌ¤)=%8ÕÍ•ÉÌÔ=8¤¹ÕÍ•É}¥€ôÔ¹¥]!I¤¹¥€ô€œ‘¥Ñ•µ}¥œˆì(‘¥Ñ•µ}É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘¥Ñ•µ}ÍÅ°¤ì()¥˜€ ‘¥Ñ•µ}É•ÍÕ±Ð´ù¹Õµ}É½ÝÌ€ôô€À¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‰É½ÝÍ”¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•´€ô€‘¥Ñ•µ}É•ÍÕ±Ð´ù™•Ñ¡}…ÍÍ½Œ ¤ì((¼¼AÉ•Ù•¹ÐÕÍ•ÉÌ™É½´µ•ÍÍ…¥¹œÑ¡•µÍ•±Ù•Ì)¥˜€ ‘¥Ñ•µlÍ•±±•É}¥t€ôô€‘ÕÍ•É}¥¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è¥Ñ•´¹Á¡Àý¥ôˆ€¸€‘¥Ñ•µ}¥¤ì(€€€•á¥Ð ¤ì)ô((‘ÍÕ•ÍÌ€ô€œœì(‘•ÉÉ½È€ô€œœì)¥˜€ ‘}MIYIlIEUMQ}5Q!=t€ôô€A=MPœ¤ì(€€€€‘µ•ÍÍ…”€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQlµ•ÍÍ…”t¤ì(€€€€‘É••¥Ù•É}¥€ô€‘¥Ñ•µlÍ•±±•É}¥tì((€€€¥˜€ …•µÁÑä ‘µ•ÍÍ…”¤¤ì(€€€€€€€€‘ÍÅ°€ô€‰%9MIP%9Q<µ•ÍÍ…•Ì€¡Í•¹‘•É}¥°É••¥Ù•É}¥°¥Ñ•µ}¥°µ•ÍÍ…”¤€(€€€€€€€€€€€€€€€Y1UL€ œ‘ÕÍ•É}¥œ°€œ‘É••¥Ù•É}¥œ°€œ‘¥Ñ•µ}¥œ°€œ‘µ•ÍÍ…”œ¤ˆì(€€€€€€€€(€€€€€€€¥˜€ ‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤¤ì(€€€€€€€€€€€€‘ÍÕ•ÍÌ€ô€‰5•ÍÍ…”Í•¹ÐÍÕ•ÍÍ™Õ±±ä„Q¡”Í•±±•ÈÝ¥±°½¹Ñ…Ðå½Ô¸ˆì(€€€€€€€ô•±Í”ì(€€€€€€€€€€€€‘•ÉÉ½È€ô€‰…¥±•Ñ¼Í•¹µ•ÍÍ…”¸A±•…Í”ÑÉä……¥¸¸ˆì(€€€€€€€ô(€€€ô•±Í”ì(€€€€€€€€‘•ÉÉ½È€ô€‰5•ÍÍ…”…¹¹½Ð‰”•µÁÑä¸ˆì(€€€ô)ô((‘Á…•}Ñ¥Ñ±”€ô€‰½¹Ñ…ÐM•±±•Èˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘§Ž=¶‰žËkºwµç\ˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µÌ´Ìˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ Ø±…ÍÌô‰™Üµ‰½±µˆ´ÄˆøðýÁ¡À•¡¼¡Ñµ±ÍÁ•¥…±¡…ÉÌ ‘¥Ñ•µlÑ¥Ñ±”t¤ì€üøð½ Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµÁÉ¥µ…Éä™Üµ‰½±µˆ´ÀˆûŠ
-äðýÁ¡À•¡¼¹Õµ‰•É}™½Éµ…Ð ‘¥Ñ•µlÁÉ¥”t°€È¤ì€üøð½Àø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•Íµ…±°µˆ´ÀˆùM•±±•Èè€ðýÁ¡À•¡¼¡Ñµ±ÍÁ•¥…±¡…ÉÌ ‘¥Ñ•µlÍ•±±•É}¹…µ”t¤ì€üøð½Àø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€€€€€€€€€€€ñ™½É´µ•Ñ¡½ô‰A=MPˆ…Ñ¥½¸ôˆˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µˆ´Ðˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°±…ÍÌô‰™½É´µ±…‰•°™Üµ‰½±ˆùe½ÕÈ5•ÍÍ…”ð½±…‰•°ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñÑ•áÑ…É•„¹…µ”ô‰µ•ÍÍ…”ˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°ˆÉ½ÝÌôˆÔˆÁ±…•¡½±‘•Èô‰!¤°$´¥¹Ñ•É•ÍÑ•¥¸Ñ¡¥Ì¥Ñ•´¸%Ì¥ÐÍÑ¥±°…Ù…¥±…‰±”üˆÉ•ÅÕ¥É•øð½Ñ•áÑ…É•„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µÉ¥…À´Èˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸ÑåÁ”ô‰ÍÕ‰µ¥Ðˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäÁä´Ì™Üµ‰½±ˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¤±…ÍÌô‰™…Ì™„µÁ…Á•ÈµÁ±…¹”µ”´Èˆøð½¤øM•¹5•ÍÍ…”(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‰ÕÑÑ½¸ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µ}¥ì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µ±¥¡ÐÁä´Ìˆù…¹•°ð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€ð½™½É´ø(€€€€€€€€€€€€€€€€€€€€ðýÁ¡À•¹‘¥˜ì€üø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ð½‘¥Øø(€€€€ð½‘¥Øø(ð½‘¥Øø((ðýÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø(
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+requireLogin();
+
+if (!isset($_GET['item_id'])) {
+    header("Location: browse.php");
+    exit();
+}
+
+$item_id = mysqli_real_escape_string($conn, $_GET['item_id']);
+$user_id = $_SESSION['user_id'];
+
+// Fetch item and seller details
+$item_sql = "SELECT i.*, u.name as seller_name, u.id as seller_id FROM items i JOIN users u ON i.user_id = u.id WHERE i.id = '$item_id'";
+$item_result = $conn->query($item_sql);
+
+if ($item_result->num_rows == 0) {
+    header("Location: browse.php");
+    exit();
+}
+
+$item = $item_result->fetch_assoc();
+
+// Prevent users from messaging themselves
+if ($item['seller_id'] == $user_id) {
+    header("Location: item.php?id=" . $item_id);
+    exit();
+}
+
+$success = '';
+$error = '';
+if ($_SERVER['REQUEST_METHOD'] == 'POST') {
+    $message = mysqli_real_escape_string($conn, $_POST['message']);
+    $receiver_id = $item['seller_id'];
+
+    if (!empty($message)) {
+        $sql = "INSERT INTO messages (sender_id, receiver_id, item_id, message) 
+                VALUES ('$user_id', '$receiver_id', '$item_id', '$message')";
+        
+        if ($conn->query($sql)) {
+            $success = "Message sent successfully! The seller will contact you.";
+        } else {
+            $error = "Failed to send message. Please try again.";
+        }
+    } else {
+        $error = "Message cannot be empty.";
+    }
+}
+
+$page_title = "Contact Seller";
+include 'includes/header.php';
+?>
+
+<div class="container my-5">
+    <div class="row justify-content-center">
+        <div class="col-md-6">
+            <div class="card shadow-sm border-0 rounded-4 overflow-hidden">
+                <div class="bg-primary p-4 text-white text-center">
+                    <h3 class="fw-bold mb-0">Contact Seller</h3>
+                </div>
+                <div class="card-body p-5">
+                    <?php if ($success): ?>
+                        <div class="alert alert-success py-3 rounded-3 mb-4">
+                            <i class="fas fa-check-circle me-2"></i> <?php echo $success; ?>
+                            <div class="mt-3">
+                                <a href="item.php?id=<?php echo $item_id; ?>" class="btn btn-sm btn-success px-4">Back to Item</a>
+                            </div>
+                        </div>
+                    <?php else: ?>
+                        <?php if ($error): ?>
+                            <div class="alert alert-danger"><?php echo $error; ?></div>
+                        <?php endif; ?>
+
+                        <div class="d-flex align-items-center mb-4 p-3 bg-light rounded-3">
+                            <img src="uploads/<?php echo $item['image']; ?>" class="rounded-2" style="width: 60px; height: 60px; object-fit: cover;" onerror="this.src='https://placehold.co/100x100?text=Item'">
+                            <div class="ms-3">
+                                <h6 class="fw-bold mb-1"><?php echo htmlspecialchars($item['title']); ?></h6>
+                                <p class="text-primary fw-bold mb-0">â‚¹<?php echo number_format($item['price'], 2); ?></p>
+                                <p class="text-muted small mb-0">Seller: <?php echo htmlspecialchars($item['seller_name']); ?></p>
+                            </div>
+                        </div>
+
+                        <form method="POST" action="">
+                            <div class="mb-4">
+                                <label class="form-label fw-bold">Your Message</label>
+                                <textarea name="message" class="form-control" rows="5" placeholder="Hi, I'm interested in this item. Is it still available?" required></textarea>
+                            </div>
+                            <div class="d-grid gap-2">
+                                <button type="submit" class="btn btn-primary py-3 fw-bold">
+                                    <i class="fas fa-paper-plane me-2"></i> Send Message
+                                </button>
+                                <a href="item.php?id=<?php echo $item_id; ?>" class="btn btn-light py-3">Cancel</a>
+                            </div>
+                        </form>
+                    <?php endif; ?>
+                </div>
+            </div>
+        </div>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

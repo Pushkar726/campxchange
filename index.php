@@ -1,1 +1,119 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíÛOxN‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì((‘Á…•}Ñ¥Ñ±”€ô€‰!½µ”ˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì((¼¼•Ñ ±…Ñ•ÍÐ¥Ñ•µÌ(‘±…Ñ•ÍÑ}ÍÅ°€ô€‰M1P¤¸¨°Ô¹¹…µ”…ÌÍ•±±•É}¹…µ”I=4¥Ñ•µÌ¤)=%8ÕÍ•ÉÌÔ=8¤¹ÕÍ•É}¥€ôÔ¹¥=IH	d¤¹É•…Ñ•‘}…ÐM1%5%P€àˆì(‘±…Ñ•ÍÑ}É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘±…Ñ•ÍÑ}ÍÅ°¤ì(üø((ð„´´!•É¼M•Ñ¥½¸€´´ø(ñÍ•Ñ¥½¸±…ÍÌô‰¡•É¼µÍ•Ñ¥½¸ˆø(€€€€ñ‘¥Ø±…ÍÌô‰½¹Ñ…¥¹•Èˆø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰É½Ü…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èˆø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µ±œ´ØÑ•áÐµ•¹Ñ•ÈÑ•áÐµ±œµÍÑ…ÉÐˆø(€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÌô‰‰…‘”‰œµÁÉ¥µ…ÉäµÍÕ‰Ñ±”Ñ•áÐµÁÉ¥µ…Éäµˆ´ÌÁà´ÌÁä´ÈÉ½Õ¹‘•µÁ¥±°™Üµ‰½±ˆù…µÁÕÌá±ÕÍ¥Ù”5…É­•ÑÁ±…”ð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€ñ Ä±…ÍÌô‰¡•É¼µÑ¥Ñ±”ˆù	Õä…¹M•±°€ñ‰ÈøñÍÁ…¸±…ÍÌô‰Ñ•áÐµÁÉ¥µ…Éäˆù…µÁÕÌÍÍ•¹Ñ¥…±Ìð½ÍÁ…¸øð½ Äø(€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰¡•É¼µÍÕ‰Ñ¥Ñ±”ˆùQ¡”µ½ÍÐÑÉÕÍÑ•ÍÑÕ‘•¹ÐµÑ¼µÍÑÕ‘•¹Ðµ…É­•ÑÁ±…”™½ÈÑ•áÑ‰½½­Ì°•±•ÑÉ½¹¥Ì°…¹ÍÑÕ‘äµ…Ñ•É¥…±ÌÝ¥Ñ¡¥¸½ÕÈ…µÁÕÌ½µµÕ¹¥Ñä¸ð½Àø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à©ÕÍÑ¥™äµ½¹Ñ•¹Ðµ•¹Ñ•È©ÕÍÑ¥™äµ½¹Ñ•¹Ðµ±œµÍÑ…ÉÐ…À´Ìˆø(€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰‰É½ÝÍ”¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…Éä‰Ñ¸µ±œÁà´ÔˆùáÁ±½É”5…É­•Ðð½„ø(€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰…‘‘}¥Ñ•´¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µ½ÕÑ±¥¹”µÁÉ¥µ…Éä‰Ñ¸µ±œÁà´ÔˆùMÑ…ÉÐM•±±¥¹œð½„ø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µ±œ´Øµ¹½¹”µ±œµ‰±½¬ˆø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰Á½Í¥Ñ¥½¸µÉ•±…Ñ¥Ù”ˆø(€€€€€€€€€€€€€€€€€€€€ñ¥µœÍÉŒô‰¡ÑÑÁÌè¼½¥±±ÕÍÑÉ…Ñ¥½¹Ì¹Á½ÁÍä¹¼½É…ä½ÍÑÕ‘å¥¹œ¹ÍÙœˆ…±Ðô‰MÑÕ‘•¹Ð1¥™”ˆ±…ÍÌô‰¥µœµ™±Õ¥™±½…Ñ¥¹œµ…¹¥µ…Ñ¥½»]=âÚ$z{-®éÜj×Ö"Ó#ãÃ÷‡V6†ò‡FÖÇ7V6–Æ6†'2‚F—FVÕ²wF—FÆRuÒ“²óãÂöƒSà¢ÆF—b6Æ73Ò&BÖfÆW‚Æ–vâÖ—FV×2Ö6VçFW"Ö"Ó2#à¢ÆF—b6Æ73Ò&&r×&–Ö'’×7V'FÆR&÷VæFVBÖ6—&6ÆRÓÖRÓ""7G–ÆSÒ'v–GFƒ¢#Gƒ²†V–v‡C¢#Gƒ²F—7Æ“¢fÆWƒ²Æ–vâÖ—FV×3¢6VçFW#²§W7F–g’Ö6öçFVçC¢6VçFW#²#à¢Æ’6Æ73Ò&f2f×W6W"FW‡B×&–Ö'’"7G–ÆSÒ&föçB×6—¦S¢ãw&VÓ²#ãÂö“à¢ÂöF—cà¢Ç7â6Æ73Ò'FW‡BÖ×WFVB6ÖÆÂ#ãÃ÷‡V6†ò‡FÖÇ7V6–Æ6†'2‚F—FVÕ²w6VÆÆW%öæÖRuÒ“²óãÂ÷7ãà¢ÂöF—cà¢ÆF—b6Æ73Ò&BÖfÆW‚§W7F–g’Ö6öçFVçBÖ&WGvVVâÆ–vâÖ—FV×2Ö6VçFW"×BÖWFò#à¢ÆƒB6Æ73Ò&grÖ&öÆBFW‡B×&–Ö'’Ö"Ó#î(+“Ã÷‡V6†òçVÖ&W%öf÷&ÖB‚F—FVÕ²w&–6RuÒÂ"“²óãÂöƒCà¢Æ‡&VcÒ&—FVÒç‡ö–CÓÃ÷‡V6†òF—FVÕ²v–BuÓ²óâ"6Æ73Ò&'Fâ'Fâ×&–Ö'’'Fâ×6Ò&÷VæFVB×–ÆÂ‚Ó2#åf–WrFWF–Ç3Âöà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà¢Ã÷‡VæGv†–ÆS²óà¢Ã÷‡VÇ6S¢óà¢ÆF—b6Æ73Ò&6öÂÓ"FW‡BÖ6VçFW"’ÓR#à¢Ç6Æ73Ò'FW‡BÖ×WFVB#äæò—FV×2f÷VæBâ&RF†Rf—'7BFòÆ—7B6öÖWF†–ærÂ÷à¢ÂöF—cà¢Ã÷‡VæF–c²óà¢ÂöF—cà¢ÂöF—cà£Â÷6V7F–öãà £Ã÷‡–æ6ÇVFRv–æ6ÇVFW2öfö÷FW"ç‡s²óà
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+
+$page_title = "Home";
+include 'includes/header.php';
+
+// Fetch latest items
+$latest_sql = "SELECT i.*, u.name as seller_name FROM items i JOIN users u ON i.user_id = u.id ORDER BY i.created_at DESC LIMIT 8";
+$latest_result = $conn->query($latest_sql);
+?>
+
+<!-- Hero Section -->
+<section class="hero-section">
+    <div class="container">
+        <div class="row align-items-center">
+            <div class="col-lg-6 text-center text-lg-start">
+                <span class="badge bg-primary-subtle text-primary mb-3 px-3 py-2 rounded-pill fw-bold">Campus Exclusive Marketplace</span>
+                <h1 class="hero-title">Buy and Sell <br><span class="text-primary">Campus Essentials</span></h1>
+                <p class="hero-subtitle">The most trusted student-to-student marketplace for textbooks, electronics, and study materials within our campus community.</p>
+                <div class="d-flex justify-content-center justify-content-lg-start gap-3">
+                    <a href="browse.php" class="btn btn-primary btn-lg px-5">Explore Market</a>
+                    <a href="add_item.php" class="btn btn-outline-primary btn-lg px-5">Start Selling</a>
+                </div>
+            </div>
+            <div class="col-lg-6 d-none d-lg-block">
+                <div class="position-relative">
+                    <img src="https://illustrations.popsy.co/gray/studying.svg" alt="Student Life" class="img-fluid floating-animation">
+                </div>
+            </div>
+        </div>
+    </div>
+</section>
+
+<style>
+@keyframes float {
+    0% { transform: translateY(0px); }
+    50% { transform: translateY(-20px); }
+    100% { transform: translateY(0px); }
+}
+.floating-animation {
+    animation: float 6s ease-in-out infinite;
+}
+</style>
+
+<!-- Features Section -->
+<section class="py-5 bg-white">
+    <div class="container py-4">
+        <div class="row g-4">
+            <div class="col-md-4">
+                <div class="card h-100 border-0 shadow-sm p-4 text-center">
+                    <div class="stats-icon mb-3 mx-auto"><i class="fas fa-hand-holding-dollar fa-2x"></i></div>
+                    <h4 class="fw-bold mb-3">Save Money</h4>
+                    <p class="text-muted mb-0">Get quality academic essentials at a fraction of the original price from fellow students.</p>
+                </div>
+            </div>
+            <div class="col-md-4">
+                <div class="card h-100 border-0 shadow-sm p-4 text-center">
+                    <div class="stats-icon mb-3 mx-auto"><i class="fas fa-bolt fa-2x"></i></div>
+                    <h4 class="fw-bold mb-3">Sell Easily</h4>
+                    <p class="text-muted mb-0">Turn your used textbooks and gadgets into cash quickly within your campus circle.</p>
+                </div>
+            </div>
+            <div class="col-md-4">
+                <div class="card h-100 border-0 shadow-sm p-4 text-center">
+                    <div class="stats-icon mb-3 mx-auto"><i class="fas fa-shield-check fa-2x"></i></div>
+                    <h4 class="fw-bold mb-3">Trusted Community</h4>
+                    <p class="text-muted mb-0">Verified student accounts ensure safe and secure transactions for everyone.</p>
+                </div>
+            </div>
+        </div>
+    </div>
+</section>
+
+<!-- Latest Items Section -->
+<section class="py-5">
+    <div class="container py-4">
+        <div class="d-flex justify-content-between align-items-center mb-5">
+            <h2 class="fw-bold mb-0">Latest Listings</h2>
+            <a href="browse.php" class="text-primary fw-bold text-decoration-none">View All <i class="fas fa-arrow-right ms-1"></i></a>
+        </div>
+        <div class="row g-4">
+            <?php if ($latest_result->num_rows > 0): ?>
+                <?php while ($item = $latest_result->fetch_assoc()): ?>
+                    <div class="col-sm-6 col-md-4 col-lg-3">
+                        <div class="card h-100 border-0">
+                            <div class="position-relative overflow-hidden" style="height: 220px;">
+                                <img src="uploads/<?php echo $item['image']; ?>" class="card-img-top h-100 w-100" style="object-fit: cover;" alt="<?php echo htmlspecialchars($item['title']); ?>" onerror="this.src='https://placehold.co/600x400?text=No+Image'">
+                                <div class="position-absolute top-0 start-0 m-3">
+                                    <span class="badge bg-white shadow-sm text-primary"><?php echo htmlspecialchars($item['category']); ?></span>
+                                </div>
+                            </div>
+                            <div class="card-body p-4">
+                                <h5 class="card-title fw-bold text-truncate mb-1"><?php echo htmlspecialchars($item['title']); ?></h5>
+                                <div class="d-flex align-items-center mb-3">
+                                    <div class="bg-primary-subtle rounded-circle p-1 me-2" style="width: 24px; height: 24px; display: flex; align-items: center; justify-content: center;">
+                                        <i class="fas fa-user text-primary" style="font-size: 0.7rem;"></i>
+                                    </div>
+                                    <span class="text-muted small"><?php echo htmlspecialchars($item['seller_name']); ?></span>
+                                </div>
+                                <div class="d-flex justify-content-between align-items-center mt-auto">
+                                    <h4 class="fw-bold text-primary mb-0">â‚¹<?php echo number_format($item['price'], 2); ?></h4>
+                                    <a href="item.php?id=<?php echo $item['id']; ?>" class="btn btn-primary btn-sm rounded-pill px-3">View Details</a>
+                                </div>
+                            </div>
+                        </div>
+                    </div>
+                <?php endwhile; ?>
+            <?php else: ?>
+                <div class="col-12 text-center py-5">
+                    <p class="text-muted">No items found. Be the first to list something!</p>
+                </div>
+            <?php endif; ?>
+        </div>
+    </div>
+</section>
+
+<?php include 'includes/footer.php'; ?>
+

@@ -1,2 +1,98 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×ÏwN‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì((‘Í•…É €ô¥ÍÍ•Ð ‘}QlÍ•…É t¤€üµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}QlÍ•…É t¤€è€œœì(‘…Ñ•½Éä€ô¥ÍÍ•Ð ‘}Ql…Ñ•½Éät¤€üµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}Ql…Ñ•½Éät¤€è€œœì((‘ÍÅ°€ô€‰M1P¤¸¨°Ô¹¹…µ”…ÌÍ•±±•É}¹…µ”I=4¥Ñ•µÌ¤)=%8ÕÍ•ÉÌÔ=8¤¹ÕÍ•É}¥€ôÔ¹¥]!I€ÄôÄˆì()¥˜€ …•µÁÑä ‘Í•…É ¤¤ì(€€€€‘ÍÅ°€¸ô€ˆ9€¡¤¹Ñ¥Ñ±”1%-€œ”‘Í•…É ”œ=H¤¹‘•ÍÉ¥ÁÑ¥½¸1%-€œ”‘Í•…É ”œ¤ˆì)ô)¥˜€ …•µÁÑä ‘…Ñ•½Éä¤¤ì(€€€€‘ÍÅ°€¸ô€ˆ9¤¹…Ñ•½Éä€ô€œ‘…Ñ•½Éäœˆì)ô((‘ÍÅ°€¸ô€ˆ=IH	d¤¹É•…Ñ•‘}…ÐMˆì(‘É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤ì((‘Á…•}Ñ¥Ñ±”€ô€‰	É½ÝÍ”%Ñ•µÌˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘¥Ø±…ÍÌô‰½¹Ñ…¥¹•Èµä´Ôˆø(€€€€ñ‘¥Ø±…ÍÌô‰É½Ü…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èµˆ´Ôˆø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µ±œ´Ôˆø(€€€€€€€€€€€€ñ Ä±…ÍÌô‰™Üµ‰½±‘¥ÍÁ±…ä´Ôˆù5…É­•ÑÁ±…”ð½ Äø(€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•±•…ˆù¥Í½Ù•ÈÉ•…Ð‘•…±Ì™É½´ÍÑÕ‘•¹ÑÌ½¸å½ÕÈ…µÁÕÌ¸ð½Àø(€€€€€€€€ð½‘¥Øø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µ±œ´Üˆø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰…É‰½É‘•È´ÀÍ¡…‘½ÜµÍ´À´ÌÉ½Õ¹‘•´Ð‰œµÝ¡¥Ñ”ˆø(€€€€€€€€€€€€€€€€ñ™½É´…Ñ¥½¸ô‰‰É½ÝÍ”¹Á¡Àˆµ•Ñ¡½ô‰Pˆ±…ÍÌô‰É½Üœ´È…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èˆø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´Ôˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰¥¹ÁÕÐµÉ½ÕÀˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÌô‰¥¹ÁÕÐµÉ½ÕÀµÑ•áÐ‰œµÑÉ…¹ÍÁ…É•¹Ð‰½É‘•Èµ•¹´Àˆøñ¤±…ÍÌô‰™…Ì™„µÍ•…É Ñ•áÐµµÕÑ•ˆøð½¤øð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕÐÑåÁ”ô‰Ñ•áÐˆ¹…µ”ô‰Í•…É ˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•ÈµÍÑ…ÉÐ´ÀÁÌ·Ïw¶‰žËkºwµçMÌô‰‰œµÁÉ¥µ…ÉäµÍÕ‰Ñ±”É½Õ¹‘•µ¥É±”À´Äµ”´ÈˆÍÑå±”ô‰Ý¥‘Ñ è€ÈáÁàì¡•¥¡Ðè€ÈáÁàì‘¥ÍÁ±…äè™±•àì…±¥¸µ¥Ñ•µÌè•¹Ñ•Èì©ÕÍÑ¥™äµ½¹Ñ•¹Ðè•¹Ñ•Èìˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¤±…ÍÌô‰™…Ì™„µÕÍ•ÈÑ•áÐµÁÉ¥µ…ÉäˆÍÑå±”ô‰™½¹ÐµÍ¥é”è€À¸áÉ•´ìˆøð½¤ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÌô‰Ñ•áÐµµÕÑ•Íµ…±°ˆøðýÁ¡À•¡¼¡Ñµ±ÍÁ•¥…±¡…ÉÌ ‘¥Ñ•µlÍ•±±•É}¹…µ”t¤ì€üøð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à©ÕÍÑ¥™äµ½¹Ñ•¹Ðµ‰•ÑÝ••¸…±¥¸µ¥Ñ•µÌµ•¹Ñ•ÈµÐµ…ÕÑ¼ˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ Ð±…ÍÌô‰™Üµ‰½±Ñ•áÐµÁÉ¥µ…Éäµˆ´ÀˆûŠ
-äðýÁ¡À•¡¼¹Õµ‰•É}™½Éµ…Ð ‘¥Ñ•µlÁÉ¥”t°€È¤ì€üøð½ Ðø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…Éä‰Ñ¸µÍ´É½Õ¹‘•µÁ¥±°Áà´ÐˆùY¥•Üð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ðýÁ¡À•¹‘Ý¡¥±”ì€üø(€€€€€€€€ðýÁ¡À•±Í”è€üø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°´ÄÈÑ•áÐµ•¹Ñ•ÈÁä´Ôˆø(€€€€€€€€€€€€€€€€ñ¥µœÍÉŒô‰¡ÑÑÁÌè¼½¥±±ÕÍÑÉ…Ñ¥½¹Ì¹Á½ÁÍä¹¼½É…ä½•µÁÑäµ…ÉÐ¹ÍÙœˆ…±Ðô‰9¼¥Ñ•µÌˆÍÑå±”ô‰µ…àµÝ¥‘Ñ è€ÈÔÁÁàìˆ±…ÍÌô‰µˆ´Ðˆø(€€€€€€€€€€€€€€€€ñ Ì±…ÍÌô‰™Üµ‰½±ˆù9¼¥Ñ•µÌ™½Õ¹ð½ Ìø(€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•ˆùQÉä…‘©ÕÍÑ¥¹œå½ÕÈÍ•…É ½È…Ñ•½Éä™¥±Ñ•È¸ð½Àø(€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰‰É½ÝÍ”¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäµÐ´ÌÁà´Ôˆù±•…È¥±Ñ•ÉÌð½„ø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ðýÁ¡À•¹‘¥˜ì€üø(€€€€ð½‘¥Øø(ð½‘¥Øø((ðýÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+$search = isset($_GET['search']) ? mysqli_real_escape_string($conn, $_GET['search']) : '';
+$category = isset($_GET['category']) ? mysqli_real_escape_string($conn, $_GET['category']) : '';
+
+$sql = "SELECT i.*, u.name as seller_name FROM items i JOIN users u ON i.user_id = u.id WHERE 1=1";
+
+if (!empty($search)) {
+    $sql .= " AND (i.title LIKE '%$search%' OR i.description LIKE '%$search%')";
+}
+if (!empty($category)) {
+    $sql .= " AND i.category = '$category'";
+}
+
+$sql .= " ORDER BY i.created_at DESC";
+$result = $conn->query($sql);
+
+$page_title = "Browse Items";
+include 'includes/header.php';
+?>
+
+<div class="container my-5">
+    <div class="row align-items-center mb-5">
+        <div class="col-lg-5">
+            <h1 class="fw-bold display-5">Marketplace</h1>
+            <p class="text-muted lead">Discover great deals from students on your campus.</p>
+        </div>
+        <div class="col-lg-7">
+            <div class="card border-0 shadow-sm p-3 rounded-4 bg-white">
+                <form action="browse.php" method="GET" class="row g-2 align-items-center">
+                    <div class="col-md-5">
+                        <div class="input-group">
+                            <span class="input-group-text bg-transparent border-end-0"><i class="fas fa-search text-muted"></i></span>
+                            <input type="text" name="search" class="form-control border-start-0 ps-0" placeholder="Search items..." value="<?php echo htmlspecialchars($search); ?>">
+                        </div>
+                    </div>
+                    <div class="col-md-4">
+                        <select name="category" class="form-select border-0 bg-light">
+                            <option value="">All Categories</option>
+                            <option value="Textbooks" <?php echo $category == 'Textbooks' ? 'selected' : ''; ?>>Textbooks</option>
+                            <option value="Calculators" <?php echo $category == 'Calculators' ? 'selected' : ''; ?>>Calculators</option>
+                            <option value="Electronics" <?php echo $category == 'Electronics' ? 'selected' : ''; ?>>Electronics</option>
+                            <option value="Lab Equipment" <?php echo $category == 'Lab Equipment' ? 'selected' : ''; ?>>Lab Equipment</option>
+                            <option value="Stationery" <?php echo $category == 'Stationery' ? 'selected' : ''; ?>>Stationery</option>
+                            <option value="Other" <?php echo $category == 'Other' ? 'selected' : ''; ?>>Other</option>
+                        </select>
+                    </div>
+                    <div class="col-md-3">
+                        <button type="submit" class="btn btn-primary w-100 py-2 rounded-pill shadow-sm">Filter</button>
+                    </div>
+                </form>
+            </div>
+        </div>
+    </div>
+
+    <div class="row g-4">
+        <?php if ($result->num_rows > 0): ?>
+            <?php while ($item = $result->fetch_assoc()): ?>
+                <div class="col-sm-6 col-md-4 col-lg-3">
+                    <div class="card h-100 border-0 shadow-sm overflow-hidden rounded-4">
+                        <div class="position-relative" style="height: 220px;">
+                            <img src="uploads/<?php echo $item['image']; ?>" class="card-img-top h-100 w-100" style="object-fit: cover;" alt="<?php echo htmlspecialchars($item['title']); ?>" onerror="this.src='https://placehold.co/600x400?text=No+Image'">
+                            <div class="position-absolute top-0 start-0 m-3">
+                                <span class="badge bg-white shadow-sm text-primary"><?php echo htmlspecialchars($item['category']); ?></span>
+                            </div>
+                        </div>
+                        <div class="card-body p-4 d-flex flex-column">
+                            <h5 class="card-title fw-bold text-truncate mb-2"><?php echo htmlspecialchars($item['title']); ?></h5>
+                            <div class="d-flex align-items-center mb-3">
+                                <div class="bg-primary-subtle rounded-circle p-1 me-2" style="width: 28px; height: 28px; display: flex; align-items: center; justify-content: center;">
+                                    <i class="fas fa-user text-primary" style="font-size: 0.8rem;"></i>
+                                </div>
+                                <span class="text-muted small"><?php echo htmlspecialchars($item['seller_name']); ?></span>
+                            </div>
+                            <div class="d-flex justify-content-between align-items-center mt-auto">
+                                <h4 class="fw-bold text-primary mb-0">â‚¹<?php echo number_format($item['price'], 2); ?></h4>
+                                <a href="item.php?id=<?php echo $item['id']; ?>" class="btn btn-primary btn-sm rounded-pill px-4">View</a>
+                            </div>
+                        </div>
+                    </div>
+                </div>
+            <?php endwhile; ?>
+        <?php else: ?>
+            <div class="col-12 text-center py-5">
+                <img src="https://illustrations.popsy.co/gray/empty-cart.svg" alt="No items" style="max-width: 250px;" class="mb-4">
+                <h3 class="fw-bold">No items found</h3>
+                <p class="text-muted">Try adjusting your search or category filter.</p>
+                <a href="browse.php" class="btn btn-primary mt-3 px-5">Clear Filters</a>
+            </div>
+        <?php endif; ?>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

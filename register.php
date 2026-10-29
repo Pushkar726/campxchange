@@ -1,1 +1,122 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×Í=N‹Z–‹­¦ëeŠw¬ÔğıÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()¥˜€¡¥Í1½•‘%¸ ¤¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‘…Í¡‰½…É¹Á¡Àˆ¤ì(€€€•á¥Ğ ¤ì)ô((‘•ÉÉ½È€ô€œœì)¥˜€ ‘}MIYIlIEUMQ}5Q!=t€ôô€A=MPœ¤ì(€€€€‘¹…µ”€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl¹…µ”t¤ì(€€€€‘•µ…¥°€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl•µ…¥°t¤ì(€€€€‘Á¡½¹”€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQlÁ¡½¹”t¤ì(€€€€‘Á…ÍÍİ½É€ô€‘}A=MQlÁ…ÍÍİ½Étì(€€€€‘½¹™¥Éµ}Á…ÍÍİ½É€ô€‘}A=MQl½¹™¥Éµ}Á…ÍÍİ½Étì((€€€¥˜€ ‘Á…ÍÍİ½É€„ôô€‘½¹™¥Éµ}Á…ÍÍİ½É¤ì(€€€€€€€€‘•ÉÉ½È€ô€‰A…ÍÍİ½É‘Ì‘¼¹½Ğµ…Ñ ¸ˆì(€€€ô•±Í”ì(€€€€€€€€‘¡•­}•µ…¥°€ô€‰M1P¥I=4ÕÍ•ÉÌ]!I•µ…¥°€ô€œ‘•µ…¥°œˆì(€€€€€€€€‘É•ÍÕ±Ğ€ô€‘½¹¸´ùÅÕ•Éä ‘¡•­}•µ…¥°¤ì(€€€€€€€¥˜€ ‘É•ÍÕ±Ğ´ù¹Õµ}É½İÌ€ø€À¤ì(€€€€€€€€€€€€‘•ÉÉ½È€ô€‰µ…¥°…±É•…‘äÉ•¥ÍÑ•É•¸ˆì(€€€€€€€ô•±Í”ì(€€€€€€€€€€€€‘¡…Í¡•‘}Á…ÍÍİ½É€ôÁ…ÍÍİ½É‘}¡…Í  ‘Á…ÍÍİ½É°AMM]=I}U1P¤ì(€€€€€€€€€€€€‘ÍÅ°€ô€‰%9MIP%9Q<ÕÍ•ÉÌ€¡¹…µ”°•µ…¥°°Á¡½¹”°Á…ÍÍİ½É¤Y1UL€ œ‘¹…µ”œ°€œ‘•µ…¥°œ°€œ‘Á¡½¹”œ°€œ‘¡…Í¡•‘}Á…ÍÍİ½Éœ¤ˆì(€€€€€€€€€€€¥˜€ ‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤¤ì(€€€€€€€€€€€€€€€€‘}MMM%=9lÍÕ•ÍÌt€ô€‰I•¥ÍÑÉ…Ñ¥½¸ÍÕ•ÍÍ™Õ°„A±•…Í”±½¥¸¸ˆì(€€€€€€€€€€€€€€€¡•…‘•È ‰1½…Ñ¥½¸è±½¥¸¹Á¡Àˆ¤ì(€€€€€€€€€€€€€€€•á¥Ğ ¤ì(€€€€€€€€€€€ô•±Í”ì(€€€€€€€€€€€€€€€€‘•ÉÉ½È€ô€‰I•¥ÍÑÉ…Ñ¥½¸™…¥±•¸A±•…Í”ÑÉä……¥¸¸ˆì(€€€€€€€€€€€ô(€€€€€€€ô(€€€ô)ô((‘Á…•}Ñ¥Ñ±”€ô€‰I•¥ÍÑ•Èˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘¥Ø±…ÍÌô‰…ÕÑ µİÉ…ÁÁ•Èˆø(€€€€ñ‘¥Ø±…ÍÌô‰…ÕÑ µ…ÉÍ¡…‘½Üµ±œ‰½É‘•È´Àˆø(€€€€€€€€ğ„´´½±½É™Õ³Í=¶‰Ëkºwµçu”ô‰•µ…¥°ˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ĞˆÁ±…•¡½±‘•Èô‰¹…µ•½±±•”¹•‘ÔˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´Øˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°±…ÍÌô‰™½É´µ±…‰•°ˆùA¡½¹”9Õµ‰•Èğ½±…‰•°ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕĞÑåÁ”ô‰Ñ•áĞˆ¹…µ”ô‰Á¡½¹”ˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ĞˆÁ±…•¡½±‘•ÈôˆÄÈÌĞÔØÜàäÀˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´Øˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°±…ÍÌô‰™½É´µ±…‰•°ˆùA…ÍÍİ½Éğ½±…‰•°ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕĞÑåÁ”ô‰Á…ÍÍİ½Éˆ¹…µ”ô‰Á…ÍÍİ½Éˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ĞˆÁ±…•¡½±‘•Èô‹Š‹Š‹Š‹Š‹Š‹Š‹Š‹ŠˆˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´Øˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°±…ÍÌô‰™½É´µ±…‰•°ˆù½¹™¥É´A…ÍÍİ½Éğ½±…‰•°ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕĞÑåÁ”ô‰Á…ÍÍİ½Éˆ¹…µ”ô‰½¹™¥Éµ}Á…ÍÍİ½Éˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ĞˆÁ±…•¡½±‘•Èô‹Š‹Š‹Š‹Š‹Š‹Š‹Š‹ŠˆˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸ÑåÁ”ô‰ÍÕ‰µ¥Ğˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäÜ´ÄÀÀÁä´ÌµĞ´Ğµˆ´Ğˆø(€€€€€€€€€€€€€€€€€€€É•…Ñ”½Õ¹Ğ€ñ¤±…ÍÌô‰™…Ì™„µÕÍ•ÈµÁ±ÕÌµÌ´Èˆøğ½¤ø(€€€€€€€€€€€€€€€€ğ½‰ÕÑÑ½¸ø(€€€€€€€€€€€€ğ½™½É´ø((€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰Ñ•áĞµ•¹Ñ•Èˆø(€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áĞµµÕÑ•Íµ…±°ˆù±É•…‘ä¡…Ù”…¸…½Õ¹Ğü€ñ„¡É•˜ô‰±½¥¸¹Á¡Àˆ±…ÍÌô‰Ñ•áĞµÁÉ¥µ…Éä™Üµ‰½±Ñ•áĞµ‘•½É…Ñ¥½¸µ¹½¹”ˆùM¥¸¥¸¡•É”ğ½„øğ½Àø(€€€€€€€€€€€€ğ½‘¥Øø(€€€€€€€€ğ½‘¥Øø(€€€€ğ½‘¥Øø(ğ½‘¥Øø((ğıÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+if (isLoggedIn()) {
+    header("Location: dashboard.php");
+    exit();
+}
+
+$error = '';
+if ($_SERVER['REQUEST_METHOD'] == 'POST') {
+    $name = mysqli_real_escape_string($conn, $_POST['name']);
+    $email = mysqli_real_escape_string($conn, $_POST['email']);
+    $phone = mysqli_real_escape_string($conn, $_POST['phone']);
+    $password = $_POST['password'];
+    $confirm_password = $_POST['confirm_password'];
+
+    if ($password !== $confirm_password) {
+        $error = "Passwords do not match.";
+    } else {
+        $check_email = "SELECT id FROM users WHERE email = '$email'";
+        $result = $conn->query($check_email);
+        if ($result->num_rows > 0) {
+            $error = "Email already registered.";
+        } else {
+            $hashed_password = password_hash($password, PASSWORD_DEFAULT);
+            $sql = "INSERT INTO users (name, email, phone, password) VALUES ('$name', '$email', '$phone', '$hashed_password')";
+            if ($conn->query($sql)) {
+                $_SESSION['success'] = "Registration successful! Please login.";
+                header("Location: login.php");
+                exit();
+            } else {
+                $error = "Registration failed. Please try again.";
+            }
+        }
+    }
+}
+
+$page_title = "Register";
+include 'includes/header.php';
+?>
+
+<div class="auth-wrapper">
+    <div class="auth-card shadow-lg border-0">
+        <!-- Colorful Info Side -->
+        <div class="auth-info d-none d-lg-flex">
+            <h1 class="display-4 fw-900 text-white mb-4">Join the Club!</h1>
+            <p class="lead text-white-50 mb-5">Create your student account and join thousands of students already trading on campus.</p>
+            <div class="features-list">
+                <div class="d-flex align-items-center mb-4">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-rocket text-white"></i>
+                    </div>
+                    <span>Fast & Easy Setup</span>
+                </div>
+                <div class="d-flex align-items-center mb-4">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-shield-alt text-white"></i>
+                    </div>
+                    <span>Secure Transactions</span>
+                </div>
+                <div class="d-flex align-items-center">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-heart text-white"></i>
+                    </div>
+                    <span>Built for Students</span>
+                </div>
+            </div>
+        </div>
+
+        <!-- Form Side -->
+        <div class="auth-form-side">
+            <div class="mb-5">
+                <h2 class="fw-900 text-dark mb-2">Create Account</h2>
+                <p class="text-muted">Start your journey with campXchange</p>
+            </div>
+
+            <?php if ($error): ?>
+                <div class="alert alert-danger border-0 rounded-4 mb-4"><?php echo $error; ?></div>
+            <?php endif; ?>
+
+            <form method="POST" action="">
+                <div class="row g-3">
+                    <div class="col-md-12">
+                        <label class="form-label">Full Name</label>
+                        <div class="input-group">
+                            <span class="input-group-text bg-light border-0 ps-3"><i class="fas fa-user text-muted"></i></span>
+                            <input type="text" name="name" class="form-control border-0 bg-light" placeholder="John Doe" required>
+                        </div>
+                    </div>
+                    <div class="col-md-6">
+                        <label class="form-label">Email Address</label>
+                        <input type="email" name="email" class="form-control border-0 bg-light" placeholder="name@college.edu" required>
+                    </div>
+                    <div class="col-md-6">
+                        <label class="form-label">Phone Number</label>
+                        <input type="text" name="phone" class="form-control border-0 bg-light" placeholder="1234567890" required>
+                    </div>
+                    <div class="col-md-6">
+                        <label class="form-label">Password</label>
+                        <input type="password" name="password" class="form-control border-0 bg-light" placeholder="â€¢â€¢â€¢â€¢â€¢â€¢â€¢â€¢" required>
+                    </div>
+                    <div class="col-md-6">
+                        <label class="form-label">Confirm Password</label>
+                        <input type="password" name="confirm_password" class="form-control border-0 bg-light" placeholder="â€¢â€¢â€¢â€¢â€¢â€¢â€¢â€¢" required>
+                    </div>
+                </div>
+                <button type="submit" class="btn btn-primary w-100 py-3 mt-4 mb-4">
+                    Create Account <i class="fas fa-user-plus ms-2"></i>
+                </button>
+            </form>
+
+            <div class="text-center">
+                <p class="text-muted small">Already have an account? <a href="login.php" class="text-primary fw-bold text-decoration-none">Sign in here</a></p>
+            </div>
+        </div>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

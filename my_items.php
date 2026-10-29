@@ -1,1 +1,72 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×~»N‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()É•ÅÕ¥É•1½¥¸ ¤ì((‘ÕÍ•É}¥€ô€‘}MMM%=9lÕÍ•É}¥tì(‘ÍÅ°€ô€‰M1P€¨I=4¥Ñ•µÌ]!IÕÍ•É}¥€ô€œ‘ÕÍ•É}¥œ=IH	dÉ•…Ñ•‘}…ÐMˆì(‘É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤ì((‘Á…•}Ñ¥Ñ±”€ô€‰5ä1¥ÍÑ¥¹Ìˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘¥Ø±…ÍÌô‰½¹Ñ…¥¹•Èµä´Ôˆø(€€€€ñ‘¥Ø±…ÍÌô‰É½Ü…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èµˆ´Ôˆø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´àˆø(€€€€€€€€€€€€ñ Ä±…ÍÌô‰™Üµ‰½±ˆù5ä1¥ÍÑ¥¹Ìð½ Äø(€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•ˆù5…¹…”…±°Ñ¡”¥Ñ•µÌå½ÔÙ”Á½ÍÑ•™½ÈÍ…±”¸ð½Àø(€€€€€€€€ð½‘¥Øø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´ÐÑ•áÐµµµ•¹ˆø(€€€€€€€€€€€€ñ„¡É•˜ô‰…‘‘}¥Ñ•´¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäÁà´ÐÁä´Èˆøñ¤±…ÍÌô‰™…Ì™„µÁ±ÕÌµ”´Èˆøð½¤øA½ÍÐ9•Ü%Ñ•´ð½„ø(€€€€€€€€ð½‘¥Øø(€€€€ð½‘¥Øø((€€€€ñ‘¥Ø±…ÍÌô‰É½Üœ´Ðˆø(€€€€€€€€ðýÁ¡À¥˜€ ‘É•ÍÕ±Ð´ù¹Õµ}É½ÝÌ€ø€À¤è€üø(€€€€€€€€€€€€ðýÁ¡ÀÝ¡¥±”€ ‘¥Ñ•´€ô€‘É•ÍÕ±Ð´ù™•Ñ¡}…ÍÍ½Œ ¤¤è€üø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´ÄÈˆø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰…É‰½É‘•È´ÀÍ¡…‘½ÜµÍ´½Ù•É™±½Üµ¡¥‘‘•¸ˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰É½Üœ´À…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ´Èˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¥µœÍÉŒô‰ÕÁ±½…‘Ì¼ðýÁ¡À•¡¼€‘¥Ñ•µl¥µ…”tì€üøˆ±…ÍÌô‰¥µœµ™±Õ¥É½Õ¹‘•µÍÑ…ÉÐÜ´ÄÀÀ ´ÄÀÀˆÍÑå±”ô‰½‰©•Ðµ™¥Ðè½Ù•Èìµ¥¸µ¡•¥¡Ðè€ÄÔÁÁàìˆ…±ÐôˆðýÁ¡À•¡¼¡Ñµ±ÍÁ•¥…±¡…ÉÌ ‘¥Ñ•µlÑ¥Ñ±”t¤ì€üøˆ½¹•ÉÉ½Èô‰Ñ¡¥Ì¹ÍÉŒô¡ÑÑÁÌè¼½Á±…•¡½±¹¼¼ÌÀÁàÈÀÀýÑ•áÐõ%Ñ•´œˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µµ·~»¶‰žËkºwµçIµ‰½‘äÀ´ÐÑ•áÐµµµ•¹ˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à™±•àµÝÉ…À©ÕÍÑ¥™äµ½¹Ñ•¹Ðµµµ•¹…À´Èˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µ±¥¡Ð‰Ñ¸µÍ´Áà´Ìˆøñ¤±…ÍÌô‰™…Ì™„µ•å”µ”´Äˆøð½¤øY¥•Üð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰•‘¥Ñ}¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µ½ÕÑ±¥¹”µÁÉ¥µ…Éä‰Ñ¸µÍ´Áà´Ìˆøñ¤±…ÍÌô‰™…Ì™„µ•‘¥Ðµ”´Äˆøð½¤ø‘¥Ðð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰‘•±•Ñ•}¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µ½ÕÑ±¥¹”µ‘…¹•È‰Ñ¸µÍ´Áà´Ìˆ½¹±¥¬ô‰É•ÑÕÉ¸½¹™¥É´ É”å½ÔÍÕÉ”å½ÔÝ…¹ÐÑ¼‘•±•Ñ”Ñ¡¥Ì±¥ÍÑ¥¹œüœ¤ˆøñ¤±…ÍÌô‰™…Ì™„µÑÉ…Í µ…±Ðµ”´Äˆøð½¤ø•±•Ñ”ð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ðýÁ¡À•¹‘Ý¡¥±”ì€üø(€€€€€€€€ðýÁ¡À•±Í”è€üø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°´ÄÈÑ•áÐµ•¹Ñ•ÈÁä´Ôˆø(€€€€€€€€€€€€€€€€ñ¥µœÍÉŒô‰¡ÑÑÁÌè¼½¥±±ÕÍÑÉ…Ñ¥½¹Ì¹Á½ÁÍä¹¼½É…ä½É•…Ñ¥Ù”µÝ½É¬¹ÍÙœˆ…±Ðô‰µÁÑäˆÍÑå±”ô‰µ…àµÝ¥‘Ñ è€ÈÔÁÁàìˆ±…ÍÌô‰µˆ´Ðˆø(€€€€€€€€€€€€€€€€ñ Ì±…ÍÌô‰™Üµ‰½±ˆù9¼±¥ÍÑ¥¹Ìå•Ðð½ Ìø(€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•ˆùe½Ô¡…Ù•¸ÐÁ½ÍÑ•…¹ä¥Ñ•µÌ™½ÈÍ…±”å•Ð¸ð½Àø(€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰…‘‘}¥Ñ•´¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäµÐ´ÌÁà´ÔˆùMÑ…ÉÐM•±±¥¹œð½„ø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ðýÁ¡À•¹‘¥˜ì€üø(€€€€ð½‘¥Øø(ð½‘¥Øø((ðýÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø(
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+requireLogin();
+
+$user_id = $_SESSION['user_id'];
+$sql = "SELECT * FROM items WHERE user_id = '$user_id' ORDER BY created_at DESC";
+$result = $conn->query($sql);
+
+$page_title = "My Listings";
+include 'includes/header.php';
+?>
+
+<div class="container my-5">
+    <div class="row align-items-center mb-5">
+        <div class="col-md-8">
+            <h1 class="fw-bold">My Listings</h1>
+            <p class="text-muted">Manage all the items you've posted for sale.</p>
+        </div>
+        <div class="col-md-4 text-md-end">
+            <a href="add_item.php" class="btn btn-primary px-4 py-2"><i class="fas fa-plus me-2"></i> Post New Item</a>
+        </div>
+    </div>
+
+    <div class="row g-4">
+        <?php if ($result->num_rows > 0): ?>
+            <?php while ($item = $result->fetch_assoc()): ?>
+                <div class="col-md-12">
+                    <div class="card border-0 shadow-sm overflow-hidden">
+                        <div class="row g-0 align-items-center">
+                            <div class="col-md-2">
+                                <img src="uploads/<?php echo $item['image']; ?>" class="img-fluid rounded-start w-100 h-100" style="object-fit: cover; min-height: 150px;" alt="<?php echo htmlspecialchars($item['title']); ?>" onerror="this.src='https://placehold.co/300x200?text=Item'">
+                            </div>
+                            <div class="col-md-6">
+                                <div class="card-body p-4">
+                                    <div class="d-flex align-items-center gap-2 mb-2">
+                                        <span class="badge bg-primary-subtle text-primary px-2 py-1"><?php echo htmlspecialchars($item['category']); ?></span>
+                                        <span class="text-muted small">â€¢ Posted on <?php echo date('M d, Y', strtotime($item['created_at'])); ?></span>
+                                    </div>
+                                    <h5 class="card-title fw-bold mb-2"><?php echo htmlspecialchars($item['title']); ?></h5>
+                                    <p class="card-text text-muted text-truncate" style="max-width: 500px;"><?php echo htmlspecialchars($item['description']); ?></p>
+                                    <h4 class="text-primary fw-bold mb-0">â‚¹<?php echo number_format($item['price'], 2); ?></h4>
+                                </div>
+                            </div>
+                            <div class="col-md-4">
+                                <div class="card-body p-4 text-md-end">
+                                    <div class="d-flex flex-wrap justify-content-md-end gap-2">
+                                        <a href="item.php?id=<?php echo $item['id']; ?>" class="btn btn-light btn-sm px-3"><i class="fas fa-eye me-1"></i> View</a>
+                                        <a href="edit_item.php?id=<?php echo $item['id']; ?>" class="btn btn-outline-primary btn-sm px-3"><i class="fas fa-edit me-1"></i> Edit</a>
+                                        <a href="delete_item.php?id=<?php echo $item['id']; ?>" class="btn btn-outline-danger btn-sm px-3" onclick="return confirm('Are you sure you want to delete this listing?')"><i class="fas fa-trash-alt me-1"></i> Delete</a>
+                                    </div>
+                                </div>
+                            </div>
+                        </div>
+                    </div>
+                </div>
+            <?php endwhile; ?>
+        <?php else: ?>
+            <div class="col-12 text-center py-5">
+                <img src="https://illustrations.popsy.co/gray/creative-work.svg" alt="Empty" style="max-width: 250px;" class="mb-4">
+                <h3 class="fw-bold">No listings yet</h3>
+                <p class="text-muted">You haven't posted any items for sale yet.</p>
+                <a href="add_item.php" class="btn btn-primary mt-3 px-5">Start Selling</a>
+            </div>
+        <?php endif; ?>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

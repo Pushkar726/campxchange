@@ -1,1 +1,132 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíÛ^÷N‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()É•ÅÕ¥É•1½¥¸ ¤ì()¥˜€ …¥ÍÍ•Ð ‘}Ql¥t¤¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸èµå}¥Ñ•µÌ¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•µ}¥€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}Ql¥t¤ì(‘ÕÍ•É}¥€ô€‘}MMM%=9lÕÍ•É}¥tì((¼¼•Ñ ÕÉÉ•¹Ð¥Ñ•´‘•Ñ…¥±Ì(‘ÍÅ°€ô€‰M1P€¨I=4¥Ñ•µÌ]!I¥€ô€œ‘¥Ñ•µ}¥œ9ÕÍ•É}¥€ô€œ‘ÕÍ•É}¥œˆì(‘É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤ì()¥˜€ ‘É•ÍÕ±Ð´ù¹Õµ}É½ÝÌ€ôô€À¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸èµå}¥Ñ•µÌ¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•´€ô€‘É•ÍÕ±Ð´ù™•Ñ¡}…ÍÍ½Œ ¤ì((‘•ÉÉ½È€ô€œœì)¥˜€ ‘}MIYIlIEUMQ}5Q!=t€ôô€A=MPœ¤ì(€€€€‘Ñ¥Ñ±”€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQlÑ¥Ñ±”t¤ì(€€€€‘…Ñ•½Éä€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl…Ñ•½Éät¤ì(€€€€‘ÁÉ¥”€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQlÁÉ¥”t¤ì(€€€€‘‘•ÍÉ¥ÁÑ¥½¸€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl‘•ÍÉ¥ÁÑ¥½¸t¤ì(€€€€‘½¹Ñ…Ñ}¥¹™¼€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl½¹Ñ…Ñ}¥¹™¼t¤ì((€€€€¼¼!…¹‘±”%µ…”UÁ±½…¥˜ÁÉ½Ù¥‘•(€€€€‘¥µ…”€ô€‘¥Ñ•µl¥µ…”tì(€€€¥˜€¡¥ÍÍ•Ð ‘}%1Ml¥µ…”t¤€˜˜€‘}%1Ml¥µ…”ul•ÉÉ½Èt€ôô€À¤ì(€€€€€€€€‘Ñ…É•Ñ}‘¥È€ô€‰ÕÁ±½…‘Ì¼ˆì(€€€€€€€€‘™¥±•}¹…µ”€ôÑ¥µ” ¤€¸€‰|ˆ€¸‰…Í•¹…µ” ‘}%1Ml‰¥µ…”‰ul‰¹…µ”‰t¤ì(€€€€€€€€‘Ñ…É•Ñ}™¥±”€ô€‘Ñ…É•Ñ}‘¥È€¸€‘™¥±•}¹…µ”ì(€€€€€€€€‘¥µ…•¥±•QåÁ”€ôÍÑÉÑ½±½Ý•È¡Á…Ñ¡¥¹™¼ ‘Ñ…É•Ñ}™¥±”°AQ!%9=}aQ9M%=8¤¤ì(€€€€€€€€(€€€€€€€€‘¡•¬€ô•Ñ¥µ…•Í¥é” ‘}%1Ml‰¥µ…”‰ul‰ÑµÁ}¹…µ”‰t¤ì(€€€€€€€¥˜ ‘¡•¬€„ôô™…±Í”¤ì(€€€€€€€€€€€¥˜€¡µ½Ù•}ÕÁ±½…‘•‘}™¥±” ‘}%1Ml‰¥µ…”‰ul‰ÑµÁ}¹…µ”‰t°€‘Ñ…É•Ñ]{ÞÚ$z{-®éÜj×öF—cà¢ÆF—b6Æ73Ò&6öÂÖÖBÓ"Ö"Ó2#à¢ÆÆ&VÂ6Æ73Ò&f÷&ÒÖÆ&VÂ#ä6öçF7BFWF–Ç2…†öæRôVÖ–Â“ÂöÆ&VÃà¢Æ–çWBG—SÒ'FW‡B"æÖSÒ&6öçF7Eö–æfò"6Æ73Ò&f÷&ÒÖ6öçG&öÂ"fÇVSÒ#Ã÷‡V6†ò‡FÖÇ7V6–Æ6†'2‚F—FVÕ²v6öçF7Eö–æfòuÒ“²óâ"&WV—&VCà¢ÂöF—cà¢ÆF—b6Æ73Ò&6öÂÖÖBÓ"Ö"ÓB#à¢ÆÆ&VÂ6Æ73Ò&f÷&ÒÖÆ&VÂ#ä7W'&VçB–ÖvSÂöÆ&VÃà¢ÆF—b6Æ73Ò&Ö"Ó"#à¢Æ–Ör7&3Ò'WÆöG2óÃ÷‡V6†òF—FVÕ²v–ÖvRuÓ²óâ"6Æ73Ò'&÷VæFVBÓ""7G–ÆSÒ'v–GFƒ¢Sƒ²†V–v‡C¢ƒ²ö&¦V7BÖf—C¢6÷fW#²"öæW'&÷#Ò'F†—2ç7&3Òv‡GG3¢ò÷Æ6V†öÆBæ6òóSƒ÷FW‡CÔæò´–ÖvRr#à¢ÂöF—cà¢ÆÆ&VÂ6Æ73Ò&f÷&ÒÖÆ&VÂ#ä6†ævR–ÖvR„÷F–öæÂ“ÂöÆ&VÃà¢Æ–çWBG—SÒ&f–ÆR"æÖSÒ&–ÖvR"6Æ73Ò&f÷&ÒÖ6öçG&öÂ"66WCÒ&–ÖvRò¢#à¢ÂöF—cà¢ÂöF—cà¢ÆF—b6Æ73Ò&BÖfÆW‚vÓ2#à¢Æ'WGFöâG—SÒ'7V&Ö—B"6Æ73Ò&'Fâ'Fâ×&–Ö'’‚ÓR’Ó"#åWFFRÆ—7F–æsÂö'WGFöãà¢Æ‡&VcÒ&×•ö—FV×2ç‡"6Æ73Ò&'Fâ'FâÖÆ–v‡B‚ÓR’Ó"#ä6æ6VÃÂöà¢ÂöF—cà¢Âöf÷&Óà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà¢ÂöF—cà£ÂöF—cà £Ã÷‡–æ6ÇVFRv–æ6ÇVFW2öfö÷FW"ç‡s²óà 
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+requireLogin();
+
+if (!isset($_GET['id'])) {
+    header("Location: my_items.php");
+    exit();
+}
+
+$item_id = mysqli_real_escape_string($conn, $_GET['id']);
+$user_id = $_SESSION['user_id'];
+
+// Fetch current item details
+$sql = "SELECT * FROM items WHERE id = '$item_id' AND user_id = '$user_id'";
+$result = $conn->query($sql);
+
+if ($result->num_rows == 0) {
+    header("Location: my_items.php");
+    exit();
+}
+
+$item = $result->fetch_assoc();
+
+$error = '';
+if ($_SERVER['REQUEST_METHOD'] == 'POST') {
+    $title = mysqli_real_escape_string($conn, $_POST['title']);
+    $category = mysqli_real_escape_string($conn, $_POST['category']);
+    $price = mysqli_real_escape_string($conn, $_POST['price']);
+    $description = mysqli_real_escape_string($conn, $_POST['description']);
+    $contact_info = mysqli_real_escape_string($conn, $_POST['contact_info']);
+
+    // Handle Image Upload if provided
+    $image = $item['image'];
+    if (isset($_FILES['image']) && $_FILES['image']['error'] == 0) {
+        $target_dir = "uploads/";
+        $file_name = time() . "_" . basename($_FILES["image"]["name"]);
+        $target_file = $target_dir . $file_name;
+        $imageFileType = strtolower(pathinfo($target_file, PATHINFO_EXTENSION));
+        
+        $check = getimagesize($_FILES["image"]["tmp_name"]);
+        if($check !== false) {
+            if (move_uploaded_file($_FILES["image"]["tmp_name"], $target_file)) {
+                $image = $file_name;
+            } else {
+                $error = "Failed to upload image.";
+            }
+        } else {
+            $error = "File is not an image.";
+        }
+    }
+
+    if (empty($error)) {
+        $update_sql = "UPDATE items SET title = '$title', category = '$category', price = '$price', description = '$description', contact_info = '$contact_info', image = '$image' 
+                       WHERE id = '$item_id' AND user_id = '$user_id'";
+        
+        if ($conn->query($update_sql)) {
+            $_SESSION['success'] = "Listing updated successfully!";
+            header("Location: my_items.php");
+            exit();
+        } else {
+            $error = "Error: " . $conn->error;
+        }
+    }
+}
+
+$page_title = "Edit Item";
+include 'includes/header.php';
+?>
+
+<div class="container my-5">
+    <div class="row justify-content-center">
+        <div class="col-md-8">
+            <div class="card shadow-sm">
+                <div class="card-body p-5">
+                    <h2 class="fw-bold mb-4">Edit Listing</h2>
+                    <?php if ($error): ?>
+                        <div class="alert alert-danger"><?php echo $error; ?></div>
+                    <?php endif; ?>
+                    <form method="POST" action="" enctype="multipart/form-data">
+                        <div class="row g-3">
+                            <div class="col-md-12 mb-3">
+                                <label class="form-label">Item Title</label>
+                                <input type="text" name="title" class="form-control" value="<?php echo htmlspecialchars($item['title']); ?>" required>
+                            </div>
+                            <div class="col-md-6 mb-3">
+                                <label class="form-label">Category</label>
+                                <select name="category" class="form-select" required>
+                                    <option value="Textbooks" <?php echo $item['category'] == 'Textbooks' ? 'selected' : ''; ?>>Textbooks</option>
+                                    <option value="Calculators" <?php echo $item['category'] == 'Calculators' ? 'selected' : ''; ?>>Calculators</option>
+                                    <option value="Electronics" <?php echo $item['category'] == 'Electronics' ? 'selected' : ''; ?>>Electronics</option>
+                                    <option value="Lab Equipment" <?php echo $item['category'] == 'Lab Equipment' ? 'selected' : ''; ?>>Lab Equipment</option>
+                                    <option value="Stationery" <?php echo $item['category'] == 'Stationery' ? 'selected' : ''; ?>>Stationery</option>
+                                    <option value="Other" <?php echo $item['category'] == 'Other' ? 'selected' : ''; ?>>Other</option>
+                                </select>
+                            </div>
+                            <div class="col-md-6 mb-3">
+                                <label class="form-label">Price (â‚¹)</label>
+                                <input type="number" step="0.01" name="price" class="form-control" value="<?php echo $item['price']; ?>" required>
+                            </div>
+                            <div class="col-md-12 mb-3">
+                                <label class="form-label">Description</label>
+                                <textarea name="description" class="form-control" rows="5" required><?php echo htmlspecialchars($item['description']); ?></textarea>
+                            </div>
+                            <div class="col-md-12 mb-3">
+                                <label class="form-label">Contact Details (Phone/Email)</label>
+                                <input type="text" name="contact_info" class="form-control" value="<?php echo htmlspecialchars($item['contact_info']); ?>" required>
+                            </div>
+                            <div class="col-md-12 mb-4">
+                                <label class="form-label">Current Image</label>
+                                <div class="mb-2">
+                                    <img src="uploads/<?php echo $item['image']; ?>" class="rounded-2" style="width: 150px; height: 100px; object-fit: cover;" onerror="this.src='https://placehold.co/150x100?text=No+Image'">
+                                </div>
+                                <label class="form-label">Change Image (Optional)</label>
+                                <input type="file" name="image" class="form-control" accept="image/*">
+                            </div>
+                        </div>
+                        <div class="d-flex gap-3">
+                            <button type="submit" class="btn btn-primary px-5 py-2">Update Listing</button>
+                            <a href="my_items.php" class="btn btn-light px-5 py-2">Cancel</a>
+                        </div>
+                    </form>
+                </div>
+            </div>
+        </div>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

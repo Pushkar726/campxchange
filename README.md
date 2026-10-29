@@ -29,7 +29,7 @@ CampXchange is a student-to-student marketplace for campus essentials. Students 
 - `includes/` — shared database, authentication, navigation, header, and footer code
 - `css/`, `js/` — styles and scripts
 - `database.sql` — MySQL database and table definitions
-- `presentation/CampXchange-Presentation.pptx` — project presentation
+- `CampXchange-Presentation.pptx` — project presentation
 
 ## Run it with XAMPP
 

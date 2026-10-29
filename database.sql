@@ -51,3 +51,4 @@ CREATE TABLE IF NOT EXISTS admins (
 );
 
 -- Insert a default admin (password: admin123)
+

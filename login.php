@@ -1,1 +1,113 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×žôN‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()¥˜€¡¥Í1½•‘%¸ ¤¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‘…Í¡‰½…É¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘•ÉÉ½È€ô€œœì)¥˜€ ‘}MIYIlIEUMQ}5Q!=t€ôô€A=MPœ¤ì(€€€€‘•µ…¥°€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}A=MQl•µ…¥°t¤ì(€€€€‘Á…ÍÍÝ½É€ô€‘}A=MQlÁ…ÍÍÝ½Étì((€€€€‘ÍÅ°€ô€‰M1P€¨I=4ÕÍ•ÉÌ]!I•µ…¥°€ô€œ‘•µ…¥°œˆì(€€€€‘É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤ì((€€€¥˜€ ‘É•ÍÕ±Ð´ù¹Õµ}É½ÝÌ€ôô€Ä¤ì(€€€€€€€€‘ÕÍ•È€ô€‘É•ÍÕ±Ð´ù™•Ñ¡}…ÍÍ½Œ ¤ì(€€€€€€€¥˜€¡Á…ÍÍÝ½É‘}Ù•É¥™ä ‘Á…ÍÍÝ½É°€‘ÕÍ•ÉlÁ…ÍÍÝ½Ét¤¤ì(€€€€€€€€€€€€‘}MMM%=9lÕÍ•É}¥t€ô€‘ÕÍ•Él¥tì(€€€€€€€€€€€€‘}MMM%=9lÕÍ•É}¹…µ”t€ô€‘ÕÍ•Él¹…µ”tì(€€€€€€€€€€€€‘}MMM%=9lÕÍ•É}•µ…¥°t€ô€‘ÕÍ•Él•µ…¥°tì(€€€€€€€€€€€¡•…‘•È ‰1½…Ñ¥½¸è‘…Í¡‰½…É¹Á¡Àˆ¤ì(€€€€€€€€€€€•á¥Ð ¤ì(€€€€€€€ô•±Í”ì(€€€€€€€€€€€€‘•ÉÉ½È€ô€‰%¹Ù…±¥Á…ÍÍÝ½É¸ˆì(€€€€€€€ô(€€€ô•±Í”ì(€€€€€€€€‘•ÉÉ½È€ô€‰9¼ÕÍ•È™½Õ¹Ý¥Ñ Ñ¡¥Ì•µ…¥°¸ˆì(€€€ô)ô((‘Á…•}Ñ¥Ñ±”€ô€‰1½¥¸ˆì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘¥Ø±…ÍÌô‰…ÕÑ µÝÉ…ÁÁ•Èˆø(€€€€ñ‘¥Ø±…ÍÌô‰…ÕÑ µ…ÉÍ¡…‘½Üµ±œ‰½É‘•È´Àˆø(€€€€€€€€ð„´´½±½É™Õ°%¹™¼M¥‘”€´´ø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰…ÕÑ µ¥¹™¼µ¹½¹”µ±œµ™±•àˆø(€€€€€€€€€€€€ñ Ä±…ÍÌô‰‘¥ÍÁ±…ä´Ð™Ü´äÀÀÑ•áÐµÝ¡¥Ñ”µˆ´Ðˆù]•±½µ”	…¬„ð½ Äø(€€€€€€€€€€€€ñÀ±…ÍÌô‰±•…Ñ•áÐµÝ¡¥Ñ”´ÔÀµˆ´Ôˆù•ÍÌå½ÕÈ…µÁÕÌµ…É­•ÑÁ±…”…¹ÍÑ…ÉÐÑÉ…‘¥¹œÝ¥Ñ ™•±±½ÜÍÑÕ‘•¹ÑÌÑ½‘…ä¸ð½Àø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰™•…ÑÕÉ•Ìµ±¥ÍÐˆø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èµˆ´Ðˆø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰‰œµÝ¡¥Ñ”‰œµ½Á…¥Ñä´ÈÀËžô¶‰žËkºwµç@€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÌô‰¥¹ÁÕÐµÉ½ÕÀµÑ•áÐ‰œµ±¥¡Ð‰½É‘•È´ÀÁÌ´Ìˆøñ¤±…ÍÌô‰™…Ì™„µ•¹Ù•±½Á”Ñ•áÐµµÕÑ•ˆøð½¤øð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕÐÑåÁ”ô‰•µ…¥°ˆ¹…µ”ô‰•µ…¥°ˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ÐˆÁ±…•¡½±‘•Èô‰¹…µ•½±±•”¹•‘ÔˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µˆ´Ôˆø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à©ÕÍÑ¥™äµ½¹Ñ•¹Ðµ‰•ÑÝ••¸…±¥¸µ¥Ñ•µÌµ•¹Ñ•Èµˆ´Èˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°±…ÍÌô‰™½É´µ±…‰•°µˆ´ÀˆùA…ÍÍÝ½Éð½±…‰•°ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ôˆŒˆ±…ÍÌô‰Ñ•áÐµÁÉ¥µ…ÉäÍµ…±°™Üµ‰½±Ñ•áÐµ‘•½É…Ñ¥½¸µ¹½¹”ˆù½É½Ðüð½„ø(€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰¥¹ÁÕÐµÉ½ÕÀˆø(€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸±…ÍÌô‰¥¹ÁÕÐµÉ½ÕÀµÑ•áÐ‰œµ±¥¡Ð‰½É‘•È´ÀÁÌ´Ìˆøñ¤±…ÍÌô‰™…Ì™„µ±½¬Ñ•áÐµµÕÑ•ˆøð½¤øð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€€€€€ñ¥¹ÁÕÐÑåÁ”ô‰Á…ÍÍÝ½Éˆ¹…µ”ô‰Á…ÍÍÝ½Éˆ±…ÍÌô‰™½É´µ½¹ÑÉ½°‰½É‘•È´À‰œµ±¥¡ÐˆÁ±…•¡½±‘•Èô‹Š‹Š‹Š‹Š‹Š‹Š‹Š‹ŠˆˆÉ•ÅÕ¥É•ø(€€€€€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸ÑåÁ”ô‰ÍÕ‰µ¥Ðˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÁÉ¥µ…ÉäÜ´ÄÀÀÁä´Ìµˆ´Ðˆø(€€€€€€€€€€€€€€€€€€€M¥¸%¸€ñ¤±…ÍÌô‰™…Ì™„µ…ÉÉ½ÜµÉ¥¡ÐµÌ´Èˆøð½¤ø(€€€€€€€€€€€€€€€€ð½‰ÕÑÑ½¸ø(€€€€€€€€€€€€ð½™½É´ø((€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰Ñ•áÐµ•¹Ñ•Èˆø(€€€€€€€€€€€€€€€€ñÀ±…ÍÌô‰Ñ•áÐµµÕÑ•Íµ…±°ˆù9•ÜÑ¼…µÁa¡…¹”ü€ñ„¡É•˜ô‰É•¥ÍÑ•È¹Á¡Àˆ±…ÍÌô‰Ñ•áÐµÁÉ¥µ…Éä™Üµ‰½±Ñ•áÐµ‘•½É…Ñ¥½¸µ¹½¹”ˆùÉ•…Ñ”…¸…½Õ¹Ðð½„øð½Àø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ð½‘¥Øø(€€€€ð½‘¥Øø(ð½‘¥Øø((ðýÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø(
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+if (isLoggedIn()) {
+    header("Location: dashboard.php");
+    exit();
+}
+
+$error = '';
+if ($_SERVER['REQUEST_METHOD'] == 'POST') {
+    $email = mysqli_real_escape_string($conn, $_POST['email']);
+    $password = $_POST['password'];
+
+    $sql = "SELECT * FROM users WHERE email = '$email'";
+    $result = $conn->query($sql);
+
+    if ($result->num_rows == 1) {
+        $user = $result->fetch_assoc();
+        if (password_verify($password, $user['password'])) {
+            $_SESSION['user_id'] = $user['id'];
+            $_SESSION['user_name'] = $user['name'];
+            $_SESSION['user_email'] = $user['email'];
+            header("Location: dashboard.php");
+            exit();
+        } else {
+            $error = "Invalid password.";
+        }
+    } else {
+        $error = "No user found with this email.";
+    }
+}
+
+$page_title = "Login";
+include 'includes/header.php';
+?>
+
+<div class="auth-wrapper">
+    <div class="auth-card shadow-lg border-0">
+        <!-- Colorful Info Side -->
+        <div class="auth-info d-none d-lg-flex">
+            <h1 class="display-4 fw-900 text-white mb-4">Welcome Back!</h1>
+            <p class="lead text-white-50 mb-5">Access your campus marketplace and start trading with fellow students today.</p>
+            <div class="features-list">
+                <div class="d-flex align-items-center mb-4">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-check text-white"></i>
+                    </div>
+                    <span>Secure Student Transactions</span>
+                </div>
+                <div class="d-flex align-items-center mb-4">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-check text-white"></i>
+                    </div>
+                    <span>Real-time Messaging</span>
+                </div>
+                <div class="d-flex align-items-center">
+                    <div class="bg-white bg-opacity-20 rounded-circle p-2 me-3">
+                        <i class="fas fa-check text-white"></i>
+                    </div>
+                    <span>Verified Campus Community</span>
+                </div>
+            </div>
+        </div>
+
+        <!-- Form Side -->
+        <div class="auth-form-side">
+            <div class="mb-5">
+                <h2 class="fw-900 text-dark mb-2">Sign In</h2>
+                <p class="text-muted">Enter your credentials to continue</p>
+            </div>
+
+            <?php if (isset($_SESSION['success'])): ?>
+                <div class="alert alert-success border-0 rounded-4 mb-4"><?php echo $_SESSION['success']; unset($_SESSION['success']); ?></div>
+            <?php endif; ?>
+            
+            <?php if ($error): ?>
+                <div class="alert alert-danger border-0 rounded-4 mb-4"><?php echo $error; ?></div>
+            <?php endif; ?>
+
+            <form method="POST" action="">
+                <div class="mb-4">
+                    <label class="form-label">Email Address</label>
+                    <div class="input-group">
+                        <span class="input-group-text bg-light border-0 ps-3"><i class="fas fa-envelope text-muted"></i></span>
+                        <input type="email" name="email" class="form-control border-0 bg-light" placeholder="name@college.edu" required>
+                    </div>
+                </div>
+                <div class="mb-5">
+                    <div class="d-flex justify-content-between align-items-center mb-2">
+                        <label class="form-label mb-0">Password</label>
+                        <a href="#" class="text-primary small fw-bold text-decoration-none">Forgot?</a>
+                    </div>
+                    <div class="input-group">
+                        <span class="input-group-text bg-light border-0 ps-3"><i class="fas fa-lock text-muted"></i></span>
+                        <input type="password" name="password" class="form-control border-0 bg-light" placeholder="â€¢â€¢â€¢â€¢â€¢â€¢â€¢â€¢" required>
+                    </div>
+                </div>
+                <button type="submit" class="btn btn-primary w-100 py-3 mb-4">
+                    Sign In <i class="fas fa-arrow-right ms-2"></i>
+                </button>
+            </form>
+
+            <div class="text-center">
+                <p class="text-muted small">New to campXchange? <a href="register.php" class="text-primary fw-bold text-decoration-none">Create an account</a></p>
+            </div>
+        </div>
+    </div>
+</div>
+
+<?php include 'includes/footer.php'; ?>
+

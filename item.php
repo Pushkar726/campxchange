@@ -1,1 +1,122 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×Þ}N‹Z–‹­¦ëeŠw¬ÔðýÁ¡À)É•ÅÕ¥É•}½¹”€½¹™¥œ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½‘ˆ¹Á¡Àœì)É•ÅÕ¥É•}½¹”€¥¹±Õ‘•Ì½…ÕÑ ¹Á¡Àœì()¥˜€ …¥ÍÍ•Ð ‘}Ql¥t¤¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‰É½ÝÍ”¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•µ}¥€ôµåÍÅ±¥}É•…±}•Í…Á•}ÍÑÉ¥¹œ ‘½¹¸°€‘}Ql¥t¤ì(‘ÍÅ°€ô€‰M1P¤¸¨°Ô¹¹…µ”…ÌÍ•±±•É}¹…µ”°Ô¹•µ…¥°…ÌÍ•±±•É}•µ…¥°°Ô¹Á¡½¹”…ÌÍ•±±•É}Á¡½¹”€(€€€€€€€I=4¥Ñ•µÌ¤€(€€€€€€€)=%8ÕÍ•ÉÌÔ=8¤¹ÕÍ•É}¥€ôÔ¹¥€(€€€€€€€]!I¤¹¥€ô€œ‘¥Ñ•µ}¥œˆì(‘É•ÍÕ±Ð€ô€‘½¹¸´ùÅÕ•Éä ‘ÍÅ°¤ì()¥˜€ ‘É•ÍÕ±Ð´ù¹Õµ}É½ÝÌ€ôô€À¤ì(€€€¡•…‘•È ‰1½…Ñ¥½¸è‰É½ÝÍ”¹Á¡Àˆ¤ì(€€€•á¥Ð ¤ì)ô((‘¥Ñ•´€ô€‘É•ÍÕ±Ð´ù™•Ñ¡}…ÍÍ½Œ ¤ì(‘Á…•}Ñ¥Ñ±”€ô€‘¥Ñ•µlÑ¥Ñ±”tì)¥¹±Õ‘”€¥¹±Õ‘•Ì½¡•…‘•È¹Á¡Àœì(üø((ñ‘¥Ø±…ÍÌô‰½¹Ñ…¥¹•Èµä´Ôˆø(€€€€ñ¹…Ø…É¥„µ±…‰•°ô‰‰É•…‘ÉÕµˆˆ±…ÍÌô‰µˆ´Ôˆø(€€€€€€€€ñ½°±…ÍÌô‰‰É•…‘ÉÕµˆ‰œµÝ¡¥Ñ”À´ÌÉ½Õ¹‘•µÁ¥±°Í¡…‘½ÜµÍ´Áà´Ðˆø(€€€€€€€€€€€€ñ±¤±…ÍÌô‰‰É•…‘ÉÕµˆµ¥Ñ•´ˆøñ„¡É•˜ô‰¥¹‘•à¹Á¡Àˆ±…ÍÌô‰Ñ•áÐµ‘•½É…Ñ¥½¸µ¹½¹”Ñ•áÐµµÕÑ•ˆù!½µ”ð½„øð½±¤ø(€€€€€€€€€€€€ñ±¤±…ÍÌô‰‰É•…‘ÉÕµˆµ¥Ñ•´ˆøñ„¡É•˜ô‰‰É½ÝÍ”¹Á¡Àˆ±…ÍÌô‰Ñ•áÐµ‘•½É…Ñ¥½¸µ¹½¹”Ñ•áÐµµÕÑ•ˆù5…É­•ÑÁ±…”ð½„øð½±¤ø(€€€€€€€€€€€€ñ±¤±…ÍÌô‰‰É•…‘ÉÕµˆµ¥Ñ•´…Ñ¥Ù”™Üµ‰½±Ñ•áÐµÁÉ¥µ…Éäˆ…É¥„µÕÉÉ•¹Ðô‰Á…”ˆøðýÁ¡À•¡¼¡Ñµ±ÍÁ•¥…±¡…ÉÌ ‘¥Ñ•µl…Ñ•½Éät¤ì€üøð½±¤ø(€€€€€€€€ð½½°ø(€€€€ð½¹…Øø((€€€€ñ‘¥Ø±…ÍÌô‰É½Üœ´Ôˆø(€€€€€€€€ñ‘¥Ø±…ÍÌô‰½°µ±œ´Üˆø(€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰…É‰½É‘•È´ÀÍ¡…‘½Üµ±œÉ½Õ¹‘•´Ô½Ù•É™±½Üµ¡¥‘‘•¸ˆø(€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰Á½Í¥Ñ¥½¸µÉ•±…Ñ¥Ù”ˆø(€€€€€€€€€€€€€€€€€€€€ñ¥µœÍÉŒô‰ÕÁ±½…‘Ì¼ðýÁ¡À•¡¼€‘¥Ñ•µl¥µ…”tì€üøˆ±…ÍÌô‰¥µœµ™±Õ¥Ü´ÄÀÀˆÍÑå±”ô‰µ…àµ¡•¥¡Ðè€ØÀÁÁàì½‰©•Ðµ™§Þ}¶‰žËkºwµçQ}Í•±±•È¹Á¡Àý¥Ñ•µ}¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÝ¡¥Ñ”Ü´ÄÀÀÁä´Ì™Üµ‰½±É½Õ¹‘•µÁ¥±°ˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¤±…ÍÌô‰™…Ì™„µÁ…Á•ÈµÁ±…¹”µ”´ÈÑ•áÐµÁÉ¥µ…Éäˆøð½¤øM•¹5•ÍÍ…”(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€ðýÁ¡À•±Í”è€üø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰•‘¥Ñ}¥Ñ•´¹Á¡Àý¥ôðýÁ¡À•¡¼€‘¥Ñ•µl¥tì€üøˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÝ¡¥Ñ”Ü´ÄÀÀÁä´Ì™Üµ‰½±É½Õ¹‘•µÁ¥±°Ñ•áÐµÁÉ¥µ…Éäˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¤±…ÍÌô‰™…Ì™„µ•‘¥Ðµ”´Èˆøð½¤ø5…¹…”5ä1¥ÍÑ¥¹œ(€€€€€€€€€€€€€€€€€€€€€€€€€€€€ð½„ø(€€€€€€€€€€€€€€€€€€€€€€€€ðýÁ¡À•¹‘¥˜ì€üø(€€€€€€€€€€€€€€€€€€€€ðýÁ¡À•±Í”è€üø(€€€€€€€€€€€€€€€€€€€€€€€€ñ„¡É•˜ô‰±½¥¸¹Á¡Àˆ±…ÍÌô‰‰Ñ¸‰Ñ¸µÝ¡¥Ñ”Ü´ÄÀÀÁä´Ì™Üµ‰½±É½Õ¹‘•µÁ¥±°Ñ•áÐµÁÉ¥µ…Éäˆø(€€€€€€€€€€€€€€€€€€€€€€€€€€€1½¥¸Ñ¼½¹Ñ…ÐM•±±•È(€€€€€€€€€€€€€€€€€€€€€€€€ð½„ø(€€€€€€€€€€€€€€€€€€€€ðýÁ¡À•¹‘¥˜ì€üø(€€€€€€€€€€€€€€€€ð½‘¥Øø((€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÌô‰µ™±•à…À´ÌÑ•áÐµµÕÑ•Íµ…±°Áà´Èˆø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸øñ¤±…ÍÌô‰™…Ì™„µÍ¡¥•±µ…±Ðµ”´ÄÑ•áÐµÍÕ•ÍÌˆøð½¤øM•ÕÉ”…µÁÕÌ•…°ð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸øñ¤±…ÍÌô‰™…Ì™„µ¡•¬µ¥É±”µ”´ÄÑ•áÐµÍÕ•ÍÌˆøð½¤øY•É¥™¥•MÑÕ‘•¹Ðð½ÍÁ…¸ø(€€€€€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€€€€€ð½‘¥Øø(€€€€€€€€ð½‘¥Øø(€€€€ð½‘¥Øø(ð½‘¥Øø((ñÍÑå±”ø(¹‰Ñ¸µÝ¡¥Ñ”ì(€€€‰…­É½Õ¹µ½±½ÈèÝ¡¥Ñ”ì(€€€½±½ÈèÙ…È ´µÁÉ¥µ…Éäµ½±½È¤ì(€€€‰½É‘•Èè¹½¹”ì)ô(¹‰Ñ¸µÝ¡¥Ñ”é¡½Ù•Èì(€€€‰…­É½Õ¹µ½±½Èè€˜á™…™Œì(€€€ÑÉ…¹Í™½É´èÑÉ…¹Í±…Ñ•d ´ÉÁà¤ì(€€€‰½àµÍ¡…‘½Üè€À€ÕÁà€ÄÕÁàÉ‰„ À°À°À°À¸Ä¤ì)ô(ð½ÍÑå±”ø((ðýÁ¡À¥¹±Õ‘”€¥¹±Õ‘•Ì½™½½Ñ•È¹Á¡Àœì€üø
+<?php
+require_once 'config.php';
+require_once 'includes/db.php';
+require_once 'includes/auth.php';
+
+if (!isset($_GET['id'])) {
+    header("Location: browse.php");
+    exit();
+}
+
+$item_id = mysqli_real_escape_string($conn, $_GET['id']);
+$sql = "SELECT i.*, u.name as seller_name, u.email as seller_email, u.phone as seller_phone 
+        FROM items i 
+        JOIN users u ON i.user_id = u.id 
+        WHERE i.id = '$item_id'";
+$result = $conn->query($sql);
+
+if ($result->num_rows == 0) {
+    header("Location: browse.php");
+    exit();
+}
+
+$item = $result->fetch_assoc();
+$page_title = $item['title'];
+include 'includes/header.php';
+?>
+
+<div class="container my-5">
+    <nav aria-label="breadcrumb" class="mb-5">
+        <ol class="breadcrumb bg-white p-3 rounded-pill shadow-sm px-4">
+            <li class="breadcrumb-item"><a href="index.php" class="text-decoration-none text-muted">Home</a></li>
+            <li class="breadcrumb-item"><a href="browse.php" class="text-decoration-none text-muted">Marketplace</a></li>
+            <li class="breadcrumb-item active fw-bold text-primary" aria-current="page"><?php echo htmlspecialchars($item['category']); ?></li>
+        </ol>
+    </nav>
+
+    <div class="row g-5">
+        <div class="col-lg-7">
+            <div class="card border-0 shadow-lg rounded-5 overflow-hidden">
+                <div class="position-relative">
+                    <img src="uploads/<?php echo $item['image']; ?>" class="img-fluid w-100" style="max-height: 600px; object-fit: cover;" alt="<?php echo htmlspecialchars($item['title']); ?>" onerror="this.src='https://placehold.co/800x600?text=No+Image'">
+                    <div class="position-absolute top-0 end-0 m-4">
+                        <span class="badge bg-white text-primary shadow-sm px-4 py-2 rounded-pill fs-6">â‚¹<?php echo number_format($item['price'], 2); ?></span>
+                    </div>
+                </div>
+            </div>
+        </div>
+        <div class="col-lg-5">
+            <div class="ps-lg-4">
+                <div class="d-flex align-items-center gap-2 mb-3">
+                    <span class="badge bg-primary-subtle text-primary px-3 py-2 rounded-pill"><?php echo htmlspecialchars($item['category']); ?></span>
+                    <span class="text-muted small"><i class="far fa-calendar-alt me-1"></i> Posted <?php echo date('M d, Y', strtotime($item['created_at'])); ?></span>
+                </div>
+                
+                <h1 class="fw-bold display-6 mb-3"><?php echo htmlspecialchars($item['title']); ?></h1>
+                
+                <div class="card border-0 bg-white shadow-sm rounded-4 p-4 mb-4">
+                    <h5 class="fw-bold mb-3">About this item</h5>
+                    <p class="text-muted lh-lg mb-3"><?php echo nl2br(htmlspecialchars($item['description'])); ?></p>
+                    
+                    <hr class="opacity-10 mb-3">
+                    
+                    <h6 class="fw-bold mb-2">Seller Contact Information:</h6>
+                    <div class="p-3 bg-light rounded-3 border-start border-primary border-4">
+                        <p class="mb-0 fw-semibold text-primary"><i class="fas fa-phone-alt me-2"></i><?php echo htmlspecialchars($item['contact_info']); ?></p>
+                    </div>
+                </div>
+                
+                <div class="card border-0 bg-primary text-white shadow-lg rounded-4 p-4 mb-4">
+                    <div class="d-flex align-items-center mb-4">
+                        <div class="flex-shrink-0">
+                            <div class="bg-white text-primary rounded-circle d-flex align-items-center justify-content-center fw-bold" style="width: 56px; height: 56px; font-size: 1.2rem;">
+                                <?php echo strtoupper(substr($item['seller_name'], 0, 1)); ?>
+                            </div>
+                        </div>
+                        <div class="flex-grow-1 ms-3">
+                            <h5 class="mb-0 fw-bold"><?php echo htmlspecialchars($item['seller_name']); ?></h5>
+                            <p class="text-white-50 small mb-0">Campus Seller</p>
+                        </div>
+                    </div>
+                    
+                    <?php if (isLoggedIn()): ?>
+                        <?php if ($_SESSION['user_id'] != $item['user_id']): ?>
+                            <a href="contact_seller.php?item_id=<?php echo $item['id']; ?>" class="btn btn-white w-100 py-3 fw-bold rounded-pill">
+                                <i class="fas fa-paper-plane me-2 text-primary"></i> Send Message
+                            </a>
+                        <?php else: ?>
+                            <a href="edit_item.php?id=<?php echo $item['id']; ?>" class="btn btn-white w-100 py-3 fw-bold rounded-pill text-primary">
+                                <i class="fas fa-edit me-2"></i> Manage My Listing
+                            </a>
+                        <?php endif; ?>
+                    <?php else: ?>
+                        <a href="login.php" class="btn btn-white w-100 py-3 fw-bold rounded-pill text-primary">
+                            Login to Contact Seller
+                        </a>
+                    <?php endif; ?>
+                </div>
+
+                <div class="d-flex gap-3 text-muted small px-2">
+                    <span><i class="fas fa-shield-alt me-1 text-success"></i> Secure Campus Deal</span>
+                    <span><i class="fas fa-check-circle me-1 text-success"></i> Verified Student</span>
+                </div>
+            </div>
+        </div>
+    </div>
+</div>
+
+<style>
+.btn-white {
+    background-color: white;
+    color: var(--primary-color);
+    border: none;
+}
+.btn-white:hover {
+    background-color: #f8fafc;
+    transform: translateY(-2px);
+    box-shadow: 0 5px 15px rgba(0,0,0,0.1);
+}
+</style>
+
+<?php include 'includes/footer.php'; ?>
+
